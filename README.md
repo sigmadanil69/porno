@@ -1,2 +1,11 @@
 # porno
-pdoras nigers hohooooooooooooooooool
+*це звичайний текст*
+**пркпупу**
+_ацйай_
+__айай__
+_пцпц**йцвй** один тип в інший_
+# gwgw
+## uuiggi
+### gwgw
+#### egewgw
+##### f3ttq
